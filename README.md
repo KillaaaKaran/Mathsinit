@@ -1,0 +1,1 @@
+honestly idrk what to put here considering i dont make a lot of maths stuff. this repository is literally only math related stuff which is most likely some simple ahh code u have seen before elsewhere
